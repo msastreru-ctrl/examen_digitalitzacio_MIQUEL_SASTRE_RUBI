@@ -1,0 +1,1 @@
+# examen_digitalitzacio_MIQUEL_SASTRE_RUBI
